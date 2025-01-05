@@ -19,3 +19,6 @@ Features
   Easy Integration: Works with existing systems and devices.
   Customizable Options: Tailor settings to your specific needs.
   Modern Design: A sleek and intuitive interface.
+
+Contact
+For inquiries, support, or collaborations, reach out to us at randikanilupul123@gmail.com.
